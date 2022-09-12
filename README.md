@@ -1,1 +1,1 @@
-# You are at your best, When you have nothing to loose.
+# You are at Your Best, When you have Nothing to Loose.
